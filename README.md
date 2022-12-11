@@ -1,1 +1,1 @@
-https://Saxianisil.github.io/rsschool-cv/cv
+https://saxianisil.github.io/rsschool-cv/
